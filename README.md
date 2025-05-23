@@ -6,4 +6,4 @@
 
 📫 How to reach me ...
 
-- 😄 Pronouns: ... he/him
+😄 Pronouns: ... he/him
